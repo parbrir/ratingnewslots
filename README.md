@@ -4,11 +4,11 @@
 
 Лучшие онлайн-казино:
 
-1. **[ARKADA CASINO](https://clck.ru/3FcBLa "ARKADA CASINO")**
-2. **[R7 CASINO](https://clck.ru/3FcBQu "R7 CASINO")**
-3. **[KOMETA CASINO](https://clck.ru/3FcBFf "KOMETA CASINO")**
-4. **[CAT CASINO](https://clck.ru/3FcBKb "CAT CASINO")**
-5. **[DADDY CASINO](https://clck.ru/3FcBU5 "DADDY CASINO")**
+1. **[ARKADA CASINO](https://clck.ru/3Hr27o "ARKADA CASINO")**
+2. **[R7 CASINO](https://clck.ru/3HsT58 "R7 CASINO")**
+3. **[KOMETA CASINO](https://clck.ru/3HsSpx "KOMETA CASINO")**
+4. **[CAT CASINO](https://clck.ru/3HsTGi "CAT CASINO")**
+5. **[DADDY CASINO](https://clck.ru/3HsTSj "DADDY CASINO")**
 ---
 
 ## 🔍 Критерии Оценки: Как Составлялся Рейтинг Новых Слотов
